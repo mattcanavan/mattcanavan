@@ -1,3 +1,3 @@
-![image](https://user-images.githubusercontent.com/24658567/112673463-fa56f580-8e21-11eb-9b9f-2c7d7562359b.png)
+![image](https://user-images.githubusercontent.com/24658567/112673645-34c09280-8e22-11eb-8783-6dc829c3e265.png)
 
 - 📫 How to reach me: hello@mattcanavan.dev
